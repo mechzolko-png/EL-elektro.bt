@@ -1,2 +1,1 @@
-This website is not finished...
-Don't copy and paste xdd
+This is an introduction website for a small electrician entrepreneur near by Kecskemét city of Hungary.
